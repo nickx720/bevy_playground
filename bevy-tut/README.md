@@ -1,3 +1,2 @@
 # Part 3 - Todo
-
-https://www.youtube.com/watch?v=Yb3vInxzKGE
+https://youtu.be/4nEUX2hf2ZI?t=1038
